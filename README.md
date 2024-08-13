@@ -7,4 +7,4 @@
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 
-(https://media1.tenor.com/m/7Fhbn-yeSWkAAAAC/come-with-me-mizu.gif)
+  !.[_](https://media1.tenor.com/m/7Fhbn-yeSWkAAAAC/come-with-me-mizu.gif)
